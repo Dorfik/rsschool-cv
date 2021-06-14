@@ -1,3 +1,4 @@
+![Photo](https://github.com/Dorfik/rsschool-cv/blob/gh-pages/nH7QkQy-neY.jpg)
 # Yakau Slizhou
 * 16.08.1990
 * phone: **+375(29) 257-36-00**
